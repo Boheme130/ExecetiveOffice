@@ -45,3 +45,12 @@ Sasha曾今是俄罗斯国家飞行员，但是他的同性倾向被发现，因
 评分：4.2/5 <br>
 看点：穆斯林；古兰经求婚 <br>
 这一对有着最感人的片段，但也有最不现实的结局。两人在为各自的国家做特工期间认识相爱，之后Adam靠着Faisal作为王子的身份两人一起挖了许多情报，改变了书里多个事件的进程。然而两人被沙特皇室发现，为了Faisal的皇位也为了防止自己被军事法庭裁决，Adam断绝了交往。但是一次在非洲北部Jack遇刺同时Ethan被抓，Adam带领小队营救失败，在众人垂危之际Adam重新联系了Faisal让他派飞机来救人。两人之后又分分合合，但最终卷世界末日时Faisal遇刺，Adam重新回到Faisal身边，和小队一起前往南极和Jack, Sergey汇合组织核燃料喷射。Faisal等人被抓，Adam决定牺牲自己，他临走前用古兰经里的天堂片段向Faisal求婚，告诉他自己会在天堂的入口等他。Adam不是穆斯林，但他对Faisal的情感变化可以通过他在交往过程中对古兰经不同片段的引用看出，作者曾经为了写出真实的情节上过穆斯林学校钻研穆斯林文化(书名：Whisper)，Adam和Faisal的感情越到后面宗教和浪漫结合得越紧密，不敢相信作者居然能用伊斯兰教来描写同性情感的美好。这一对最后的HE最大的问题是美好到太不真实了。
+
+<br>
+<br>
+<br>
+
+## 友谊线🇺🇸🇷🇺
+美国总统Jack & 俄罗斯总统Sergey<br>
+看点：敌人变朋友<br>
+这一对可以说是很迷了，两人第一部开始要变朋友，然后Jack出柜Sergey隔天翻脸骂他faggot (其实是Sergey内心bisexuality的投射)，但后面两部又变成了最亲密的zz盟友，而且Sergey和Jack除了接吻可以说是做了全套，两人干过的事比Sergey和Sasha一起干的还多，Sergey在白宫舞会抱着Jack的腰跳华尔兹，Ethan和Sasha就在旁边看着；Jack在俄罗斯逃亡时寒冷过度昏了过去，Sergey脱掉衣服用身体帮他取暖，结果两人睡了过去，中间Jack把Sergey当成Ethan差点直接xx，Sergey居然也起了反应；Sergey醒悟自己的bisexuality崩溃时还直接对Jack的外貌表白了；而Jack在大决战前潜艇上婚礼的首席伴郎就是Sergey；后续系列Ascendant和Stars里Jack为了帮Sergey留住Sasha，帮Sasha写了去NASA的推荐信，完成了Sasha的航天梦也为Sergey争取了两人相处的机会。
